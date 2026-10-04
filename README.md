@@ -72,8 +72,11 @@ Interactive Power BI Dashboard
 Insights & Analysis
 
 
+https://github.com/user-attachments/assets/84dcd8b6-afea-46cb-837e-f0627e8704ae
 
-https://github.com/user-attachments/assets/91c7d293-eeb0-4d31-bcfd-9b837d41a19d
+
+
+
 
 
 
